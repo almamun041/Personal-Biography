@@ -19,7 +19,7 @@ Qualifications and Interests
 - **Bachelor in Science in Veterinary Science & Animal Husbandry**
   - Bangabandhu Sheikh Mujibur Rahman Science & Technology University, Gopalganj-8100, Dhaka, Bangladesh.
 - **EDGE-BSMRSTUCSE Digital Skills Training**
-  - Enrolling.
+  - Completed.
 - **International Summer Course on One Health Concept for Tropical Diseases Mitigation**
   - IPB University, Indonesia.
 - **Workshop on Adobe Illustrator**
